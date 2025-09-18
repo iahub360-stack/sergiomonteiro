@@ -37,3 +37,6 @@ Um pesquisador e desenvolvedor em soluções inteligentes, fundando ecossistemas
 📱 +55 (62) 99288-7416 
 📸 Instagram https://www.instagram.com/sergiomonteiro.iahub360/
 🔗 LinkedIn https://www.linkedin.com/in/sergiofilipemonteiro/
+
+sergiomonteiro.iahub360.com
+https://g.co/gemini/share/4f4dab5ffa28
